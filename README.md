@@ -1,1 +1,2 @@
-Dread it. Run from it. Destination still arrives the same.
+Dread it, run from it, destiny arrives all the same.
+
