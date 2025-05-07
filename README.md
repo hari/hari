@@ -1,8 +1,8 @@
 **Currently**:
-- 👶 Raising a baby girl and playing games with my wife 🎮  
-- 🧑‍💻 Building AI-powered web and mobile apps 🚀 at [Codse](https://github.com/Codse)  
-- 👾 Exploring **AI** for personalized experiences & business automation  
-- 📚 Learning **music theory** and improving my guitar skills 🎸  
+👶 Raising a baby girl and playing games with my wife 🎮  
+🧑‍💻 Building AI-powered web and mobile apps 🚀 at [Codse](https://github.com/Codse)  
+👾 Exploring **AI** for personalized experiences & business automation  
+📚 Learning **music theory** and improving my guitar skills 🎸  
 
 ---
 
